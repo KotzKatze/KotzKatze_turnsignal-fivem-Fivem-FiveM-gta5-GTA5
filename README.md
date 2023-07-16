@@ -2,4 +2,6 @@
 blink with:
 arrow keys!
 script by:
-KotzEimer
+KotzKatze
+
+sorry bc of the name firstly i wanted to name my name kotzeimer sorry 
